@@ -44,7 +44,7 @@ My approach combines deep user empathy, data-driven decision-making, and a relen
 
 📫 Let's Connect
 - LinkedIn
-  - https://www.linkedin.com/in/contacttiwari/<br/><br/>
+  - https://www.linkedin.com/in/pmpankaj/<br/><br/>
 
 👥 How I Can Help
 
