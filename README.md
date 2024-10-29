@@ -48,7 +48,7 @@ My approach combines deep user empathy, data-driven decision-making, and a relen
 
 👥 How I Can Help
 
-If you're looking for guidance on:
+If you're looking for guidance on
 - Defining and executing a winning technology strategy
 - Building and scaling high-performance technical teams
 - Navigating solution-market fit and growth challenges
